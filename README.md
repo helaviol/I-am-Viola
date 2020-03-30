@@ -2,7 +2,7 @@
 
 ### Geography
 
-I live in the city of Honolulu, in the state of Hawaii, in the USA
+I wish I lived in Hawaii.
 
 ### Reading 
 
